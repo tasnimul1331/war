@@ -1,0 +1,2 @@
+# war
+War is a situation or a period of fighting between countries or groups of people.[1] A war generally involves the use of weapons, a military organization and soldiers. War is a situation in which a nation enforces its rights by using force.[2] Not every armed conflict is a war. A fight between individuals, between gangs, drug cartels, etc. is not considered a war.[3] However, most wars are called armed conflicts
